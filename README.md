@@ -1,4 +1,4 @@
-### Olá, eu sou Joélia Rocha, criadora de conteúdo de programação e tecnologia. 🙃
+### Olá, Sou criadora de conteúdo de programação e tecnologia. 🙃
 
 <div align="center">
   <a href="https://www.linkedin.com/in/joelia-rocha/">
