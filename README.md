@@ -1,4 +1,4 @@
-### Olá, Sou desenvolvedora de software em formação. 🙃
+### Olá, Sou desenvolvedora de software jr. 🙃
 
 <div align="center">
   <a href="https://www.linkedin.com/in/joelia-rocha/">
